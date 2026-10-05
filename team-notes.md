@@ -1,1 +1,1 @@
-Team motto: To be decided.
+Team motto: läheb kuidas läheb
