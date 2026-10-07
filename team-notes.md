@@ -1,1 +1,1 @@
-Team motto: läheb kuidas läheb
+Team motto: One must imagine a computer scientist happy.
